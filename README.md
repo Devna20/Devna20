@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Devna20
-- 👀 I’m interested in career in computing
+- 👀 I’m interested in a career in computing
 - 🌱 I’m currently learning several computing modules in university
 - 💞️ I’m looking to collaborate with a company for my placement year
 - 📫 How to reach me - email: devnaoneill123@icloud.com
